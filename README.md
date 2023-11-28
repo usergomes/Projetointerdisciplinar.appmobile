@@ -1,0 +1,1 @@
+# Projetointerdisciplinar.appmobile
